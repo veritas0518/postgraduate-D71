@@ -1,0 +1,2 @@
+# postgraduate-D71
+Today is still an ordinary day, but my anxiety, fear and anxiety still haven't dissipated. I really hate this feeling. The pressure of employment and learning is really overwhelming. Now I finally understand why so many people change careers and don't become programmers. It's really not a good job. Maybe my family is too far from the city center, I often think so. What would happen if I wasn't from Jiading? Would there be any change if I was born in the urban area? If I had studied hard at the beginning, it would have happened XS
